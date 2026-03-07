@@ -1,0 +1,1 @@
+# copia-para-IA
